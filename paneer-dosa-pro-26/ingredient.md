@@ -1,0 +1,1 @@
+paneer,rava,capsicum,methi leaves,green chilies,onions,tomato,spice powder,ginger,garlic,chutney.
